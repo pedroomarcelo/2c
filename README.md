@@ -7,6 +7,6 @@ Repositório  da turma 2c
 
 Sejam todos bem vindos
 
-![]()
+![](https://media1.tenor.com/m/DuThn51FjPcAAAAC/nerd-emoji-nerd.gif)
 
 Contato e-mail 📧 00001121442225sp@al.educacao.sp.gov.br
